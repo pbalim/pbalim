@@ -2,7 +2,9 @@ hihihi pls BMF and C+H me !!!!!!!!!!!!! P:
 
 ![image Alt](https://github.com/pbalim/pbalim/blob/23b80ad4942a8d1ead393f24dd8311d19b20c521/%E2%9C%B0.jfif)
 
-![My GIF](https://user-images.githubusercontent.com/139253220/234985759-62e40c59-b1e9-4a57-9e9e-9a6d42e7dbbb.gif)
+<p align="center">
+  <img src="https://user-images.githubusercontent.com/139253220/234985759-62e40c59-b1e9-4a57-9e9e-9a6d42e7dbbb.gif" width="250" />
+</p>
 
 ![image Alt](https://i.imgur.com/3psGxIy.png) 
 <!--
