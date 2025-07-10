@@ -3,7 +3,7 @@ hihihi pls BMF and C+H me !!!!!!!!!!!!! P:
 ![image Alt](https://github.com/pbalim/pbalim/blob/23b80ad4942a8d1ead393f24dd8311d19b20c521/%E2%9C%B0.jfif)
 
 <p align="center">
-  <img src="https://user-images.githubusercontent.com/122802349/238820370-83b4acbd-f1d3-4e4d-b50e-d2b33930eb56.gif" width="250" />
+  <img src="https://user-images.githubusercontent.com/139253220/236160057-06ed6ee1-fd2e-48b1-b617-e3a0fcf09d5e.gif" width="250" />
 </p>
 
 ![image Alt](https://i.imgur.com/3psGxIy.png) 
