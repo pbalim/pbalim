@@ -1,6 +1,6 @@
 hihihi pls BMF and C+H me !!!!!!!!!!!!! P:
 
-![image Alt](https://github.com/pbalim/pbalim/blob/23b80ad4942a8d1ead393f24dd8311d19b20c521/%E2%9C%B0.jfif)
+![image Alt](https://i.imgur.com/v96INTR.jpeg)
 
 
 ![image Alt](https://i.imgur.com/8NQT5ti.png)
