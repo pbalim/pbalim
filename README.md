@@ -1,6 +1,6 @@
 hihihi pls BMF and C+H me !!!!!!!!!!!!! P:
 
-![image Alt](https://i.imgur.com/v96INTR.jpeg)
+![image Alt](https://i.imgur.com/1gT0aJe.png)
 
 
 ![image Alt](https://i.imgur.com/8NQT5ti.png)
