@@ -1,6 +1,6 @@
 hihihi pls BMF and C+H me !!!!!!!!!!!!! P:
 
-![alt_image](https://s4.ezgif.com/tmp/ezgif-4d34a53a3caf59.gif)
+![image alt](https://i.imgur.com/LmfQ9fS.jpeg)
 <!--
 **pbalim/pbalim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
